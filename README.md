@@ -1,0 +1,1 @@
+# Barber Factory Landing Page
